@@ -1,1 +1,1 @@
-# Mental-Health-for-Tech-Professionals
+# Mental Health for Tech Professionals
